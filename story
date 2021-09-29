@@ -1,0 +1,1 @@
+there was a boy names harry potter. his parents had been killed by voldermort when harry was only an infant.
